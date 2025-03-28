@@ -19,7 +19,7 @@ Step 4. click save and then name the config to whatever then place it in a folde
 
 NO LOGITECH NEEDED OR G HUB NEEDED. 
 
-just run as it came and it will work on every mouse.
+just run as it is and it will work on every mouse.
 
 
 
