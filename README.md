@@ -37,14 +37,6 @@ If like 10 people download I will give out pixel configs.
 
 
 
-
-Optimal Recoil cheat for R6 with adjustable sliders for to make configs.
-
-
-
-
-
-
 FREE IF YOU BOUGHT THIS YOU GOT SCAMMED LOLLL.
 
 
