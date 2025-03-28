@@ -25,12 +25,9 @@ NO LOGITECH NEEDED OR G HUB NEEDED.
 
 
 
-To my Knowledge this does not work on controller so if you try to type your own keybinds it will not work🥀🥀🥀🥀
-
-
 
 Icl sybau John pork is alive.
 
 
 
-🇹​​​​​🇸​​​​​ 🇵​​​​​🇲​​​​​🇴​​​​​ 🇷​​​​​🇪​​​​​🇨​​​​​🇴​​​​​🇮​​​​​🇱​​​​​ 🇷​​​​​6
+🇹​​​​​🇸​​​​​ 🇵​​​​​🇲​​​​​🇴​​​​​ 🇷​​​​​🇪​​​​​🇨​​​​​🇴​​​​​🇮​​​​​🇱​​​​​ 🇷​​​​​6🥀🥀🥀🥀
