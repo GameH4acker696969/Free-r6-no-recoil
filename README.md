@@ -1,4 +1,4 @@
-Join Discord for Updates and Configs 
+If like 10 people download I will give out pixel configs.
 
 
 
