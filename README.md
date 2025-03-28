@@ -17,7 +17,9 @@ Step 4. click save and then name the config to whatever then place it in a folde
 
 
 
-You do not need any kind of mouse or G hub for this script to work once ran it will just work. 
+NO LOGITECH NEEDED OR G HUB NEEDED. 
+
+just run as it came and it will work on every mouse.
 
 
 
