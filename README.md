@@ -40,6 +40,7 @@ If like 10 people download I will give out pixel configs.
 FREE IF YOU BOUGHT THIS YOU GOT SCAMMED LOLLL.
 
 
+To my Knowledge this does not work on controller so if you try to type your own keybinds it will not work🥀🥀🥀🥀
 
 
 
