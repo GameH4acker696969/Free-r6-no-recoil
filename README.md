@@ -1,4 +1,1 @@
-ts pmo 
-icl ts pmo
-sybau 
-synau
+This is Universal on most games.
