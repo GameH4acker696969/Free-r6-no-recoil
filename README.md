@@ -1,1 +1,1 @@
-Click realeases and download UR.exe
+Click releases and download UR.exe
