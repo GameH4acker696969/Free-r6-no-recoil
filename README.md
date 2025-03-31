@@ -1,1 +1,1 @@
-This is Universal on most games.
+Click realeases and download UR.exe
